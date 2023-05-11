@@ -1,2 +1,2 @@
-# https-mineccoin.com
-Century Coin is a digital currency which allows each Individual to Mine and Earn Century Coin (CCoins) using their mobile phone for free. 
+# www.mineccoin.com
+Century Coin ($CCoin) 🏆⚒️, Is a digital currency which allow Individuals to @MINE and @EARN Cryptocurrency using their Smartphone for Free 💯
